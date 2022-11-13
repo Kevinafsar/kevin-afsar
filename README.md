@@ -4,7 +4,7 @@
 <h1 align="center">Kevin Afsar</h1>
 <p align="center">
 </p>
-<h1 align="center">Kevin-Afsar</h1>
+<h1 align="center">Instagram@||kevinafsar_</h1>
 
 ## My name is kevin afsar manik
 
